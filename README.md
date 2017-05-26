@@ -1,0 +1,2 @@
+# myProgrom
+for myself read
